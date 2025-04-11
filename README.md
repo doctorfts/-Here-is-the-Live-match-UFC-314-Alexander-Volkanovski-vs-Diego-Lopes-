@@ -7,6 +7,14 @@ Volkanovski’s Experience: The reigning champion before Islam, Volkanovski util
 Lopes’ Momentum: Lopes has been on a great run and comes into this fight with a lot of confidence. His punching power and aggression could give Volkanovski some trouble early on.
 Cardio and Game Plan: If Lopes doesn’t find an early finish, Volkanovski’s conditioning and ability to adjust to an opponent mid-fight might give him an edge.
 Betting Odds
+
+💻Best Streams for PC/MAC  
+🔴[SiteVisit](https://tinyurl.com/GithubUFC)
+
+📲Mobile  Friendly
+🔴[SiteVisit](https://tinyurl.com/GithubUFC)
+
+
 Bookmakers have Volkanovski slightly favored (-125), with Lopes creeping closely behind at -105.
 Event Details
 WHEN: Saturday, October 21, 2023Main Card Start Time: 10:00 PM ET / 7:00 PM PT
